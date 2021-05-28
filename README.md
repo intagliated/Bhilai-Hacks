@@ -1,4 +1,4 @@
-dea
+idea
 The COVID19 pandemic outbreak has brought India into a critical situation. As we know the 2nd wave is approaching we have to fight the crisis with strict steps and with proper measures.Here is our idea to be safe and healthy.
 
 More Details
